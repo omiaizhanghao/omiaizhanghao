@@ -17,3 +17,7 @@
 👉手机卡：https://sim18.cc/
 
 联系客服https://t.me/hwdb8999
+
+参考omiai注册账号：
+
+<img src="pic/bbb.png" alt="Omiai账号出售" border="0">
